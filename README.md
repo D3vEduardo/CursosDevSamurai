@@ -8,4 +8,4 @@ Aqui estão os links para acessar os cursos do **Dev Samurai**:
 ## ☁️ Degoo  
 🔗 [Acesse aqui](https://app.degoo.com/share/YAMnZZvRBqt0LtOdnzYgHQ)  
 
-\#DevSamurai4ever
+**\#DevSamurai4ever**
